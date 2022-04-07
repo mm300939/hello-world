@@ -1,6 +1,6 @@
 # hello-world
 
-aeggaehiaehihmanihainaehni aegmgaimgawnigaw aiwgnigna
+aeggaehiaehihmanihainaehni aegmgaimgawniga
 
 faemgai imgaimi agei
 
